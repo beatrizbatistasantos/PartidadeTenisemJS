@@ -13,4 +13,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 Você pode entrar em contato comigo 📫
 
-beatriz.santos1091@etec.sp.gov.br
+beatriz.batista.santos@outlook.com
